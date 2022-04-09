@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @BaiDukureh
+- 👀 I’m interested in Shipping Transport and Logistics...
+- 🌱 I’m currently looking for job ...
+- 💞️ I’m currently looking for sponship to learn more about my career domain...
+- 📫 How to reach me  u can mail me at muhammeddukureh@yahoo.com...
+
+<!---
+BaiDukureh/BaiDukureh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+[Curriculum_Vitae (1).docx](https://github.com/BaiDukureh/BaiDukureh/files/8457491/Curriculum_Vitae.1.docx)
+[My Cover Letter 1.docx](https://github.com/BaiDukureh/BaiDukureh/files/8457492/My.Cover.Letter.1.docx)
+![Me](https://user-images.githubusercontent.com/103327993/162585373-ca0519dd-68e3-4fc5-8225-8b19a09535a6.jpg)
